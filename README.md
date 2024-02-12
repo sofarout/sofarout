@@ -1,3 +1,3 @@
-# So Far Out
+# So Far Out 🤟
 
-A rad filmmaking studio. 🤟
+A rad filmmaking studio.
